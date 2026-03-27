@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Swapnil Mazumdar. 🌱 currently learning.
+- 👋 Hi, 🌱I’m currently learning.
 - I go by name Nox Crown,
       cause most folk cannot pronounce my irl name.
 - I'm from Bangladesh, Dhaka🇧🇩🇧🇩.🇧🇩
